@@ -2,11 +2,12 @@
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b4769f32-fffa-4c69-815f-3b68c857dc3d/d3gl479-8ba78af2-570b-4878-b46e-97b2d4f36759.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2I0NzY5ZjMyLWZmZmEtNGM2OS04MTVmLTNiNjhjODU3ZGMzZFwvZDNnbDQ3OS04YmE3OGFmMi01NzBiLTQ4NzgtYjQ2ZS05N2IyZDRmMzY3NTkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ZL_HOQaSEbntc0_CraA0dnUInN1Isv03S2q45nmhQFg" width="90px">
   </p>
 <h3 align="center"> <sub>Most sane ginger<sub> </p>
-<p align="center"> <sub>C+H are fine! as long as ur not a weeiirrdo!<sub>
+<p align="center"> <sub>C+H is fine! and feel free to int as long as ur not a weeiirrdo! I love making more oomfs..<sub>
 <p align="center"> <sub>I'm 20 years old so I'd rather no one below 17 interact<sub>
-<p align="center"> <sub>kingdom hearts and persona fans interact ^_^ <3 I'm normal about those series rn..<sub>
+<p align="center"> <sub>kingdom hearts and persona fans pleaseeee interact ^_^ <3 I'm normal about those series rn..<sub>
 <p align="center"> <sub>apologies if I don't respond right away, I'm usually offtab doing somethin else.. or busy talking to friends!<sub>
 <p align="center"> <sub>big fan of akechi and riku.. super normal guy about them.<sub>
+<p align="center"> <sub>usually at the little kh corner with my best oomfies, but will move around if my friends want to :3<sub>
 <p align="center"> <sub>inspo is fine, but no direct copying or screenshotting my skins pleasee!<sub>
 <p align="center"> 
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f9a81c59-4db9-4177-aee4-19a036dfdadf/d2brudp-e5726814-3a4f-4188-b99a-700f839c95c5.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Y5YTgxYzU5LTRkYjktNDE3Ny1hZWU0LTE5YTAzNmRmZGFkZlwvZDJicnVkcC1lNTcyNjgxNC0zYTRmLTQxODgtYjk5YS03MDBmODM5Yzk1YzUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.dLd2z1_nb3JaLLtHM3fc3Yd3c97VkrAPyBbgG011-9E" width="60px"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f9a81c59-4db9-4177-aee4-19a036dfdadf/d2q9uoc-629a04b9-dfaf-42db-a0ec-47e8f17ea6d9.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Y5YTgxYzU5LTRkYjktNDE3Ny1hZWU0LTE5YTAzNmRmZGFkZlwvZDJxOXVvYy02MjlhMDRiOS1kZmFmLTQyZGItYTBlYy00N2U4ZjE3ZWE2ZDkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.4ZrMbekec-3Ngx4qEddKG2eHizF4Pq3kOuAxtZhooe4" width="90px" height="150"> </p>
