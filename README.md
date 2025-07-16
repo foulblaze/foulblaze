@@ -13,7 +13,7 @@
   I love making more oomfs..
 </p>
 <p align="center">
-  I'm 20 years old so I'd rather no one below 17 interact
+  I'm 20 years old so I'd rather no one below 17 interact (unless we're already friends)
 </p>
 <p align="center">
   kingdom hearts and persona fans pleaseeee interact ^_^ <3 I'm normal about those series rn..
@@ -28,7 +28,10 @@
   big fan of akechi and riku.. super normal guy about them.
 </p>
 <p align="center">
-  usually at the little spawnie kh corner with my best oomfies, but will move around if my friends want to :3
+  usually at the little 18+ spawnie kh corner with my best oomfies, but will move around if my friends want to :3
+</p>
+<p align="center">
+  usually only on 18+ unless friends are in pg atp
 </p>
 <p align="center">
   inspo is fine, but no direct copying or screenshotting my skins pleasee!
