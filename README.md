@@ -31,7 +31,7 @@
   usually at the little 18+ spawnie kh corner with my best oomfies, but will move around if my friends want to :3
 </p>
 <p align="center">
-  usually only on 18+ unless friends are in pg atp
+  usually only on 18+ unless friends are in pg atm
 </p>
 <p align="center">
   inspo is fine, but no direct copying or screenshotting my skins pleasee!
