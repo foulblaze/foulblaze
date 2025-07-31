@@ -57,7 +57,11 @@
 <p align="center"> <a href="https://github.com/poltican">@poltican (THE poltican himself) </a> ー <a href="https://github.com/fleshwater">@fleshwater (tyr!!) </a> ー <a href="https://github.com/noheart-isim">@noheart-isim (cleo) </a>
 </p>
 <p align="center">
+  honorable mentions: Blake & JC :3
+</p>
+<p align="center">
   plus some more who don't have their githubs put up, or no links attached to their ponies ^_^ (or just look at my following tab)
+</p>
 
 <p align="center">
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f062e0df-7698-4a9a-80c1-123904f88abb/d2y027r-3c748711-ec97-452f-ad9a-8b3af423daf8.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2YwNjJlMGRmLTc2OTgtNGE5YS04MGMxLTEyMzkwNGY4OGFiYlwvZDJ5MDI3ci0zYzc0ODcxMS1lYzk3LTQ1MmYtYWQ5YS04YjNhZjQyM2RhZjguZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.37BdbeqaF_IFYHVMXob4hJb2oAopenygzQByrQgnN9E" width="60px">
