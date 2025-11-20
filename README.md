@@ -10,7 +10,7 @@
   C+H is fine! and feel free to int as long as ur not a weeiirrdo! 
 </p>
 <p align="center">
-  I love making more oomfs..
+  I love making more oomfs.. and being friendly!
 </p>
 <p align="center">
   I'm 21 years old so I'd rather no one below 18 interact (unless we're already oomfs or met thru a mutual/friend)
