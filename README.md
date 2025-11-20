@@ -13,7 +13,7 @@
   I love making more oomfs..
 </p>
 <p align="center">
-  I'm 20 years old so I'd rather no one below 17 interact
+  I'm 21 years old so I'd rather no one below 18 interact (unless we're already oomfs or met thru a mutual/friend)
 </p>
 <p align="center">
   kingdom hearts and persona fans pleaseeee interact ^_^ <3 I'm normal about those series rn..
@@ -53,8 +53,8 @@
   my lovely oomfies!
 
 <p align="center"> <a href="https://github.com/dollbelial">@dollbelial (my boyfriend crowleyy hii <3 ^_^) </a> ー <a href="https://github.com/trashedandscattered">@trashedandscattered (my brother in law!) </a> ー <a href="https://github.com/tongariz">@tongariz (my bff!! hiihiii!!) </a> ー
-<p align="center"> <a href="https://x.com/Mikachu_B">@Mikachu_B (Mika!) </a> ー <a href="https://github.com/hat-fix">@hat-fix (shinmin) </a> ー <a href="https://github.com/keajkidd">@keajkidd (rae) </a> ー
-<p align="center"> <a href="https://github.com/poltican">@poltican (THE poltican himself) </a> ー <a href="https://github.com/fleshwater">@fleshwater (tyr!!) </a> ー <a href="https://github.com/noheart-isim">@noheart-isim (cleo) </a>
+<p align="center"> <a href="https://x.com/Mikachu_B">@Mikachu_B (Mika!) </a> ー <a href="https://github.com/hat-fix">@hat-fix (THE shinmin!) </a> ー <a href="https://github.com/keajkidd">@keajkidd (rae rae!!) </a> ー <a href="https://github.com/NocturnalNatis">@NocturnalNatis (my twin!! :3) </a>
+<p align="center"> <a href="https://github.com/poltican">@poltican (THE poltican himself) </a> ー <a href="https://github.com/chintuli">@chintuli (elsie!! Hello bloxburg child.) </a> ー <a href="https://github.com/fleshwater">@fleshwater (tyr!!) </a> ー <a href="https://github.com/noheart-isim">@noheart-isim (cleo) </a>
 </p>
 <p align="center">
   honorable mentions: Blake & JC :3
