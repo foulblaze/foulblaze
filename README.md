@@ -1,3 +1,6 @@
+<p align="center">
+  <sub>lowkey gotta remake this and make it zanka theme LOL (still love kh and riku tho)</sub>
+
 <h3 align="center"> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e96a2c41-07fd-4723-abf1-bfd57e311ba9/d3xjdcv-2d623fa2-d135-4de9-ad66-b3523eb1f044.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2U5NmEyYzQxLTA3ZmQtNDcyMy1hYmYxLWJmZDU3ZTMxMWJhOVwvZDN4amRjdi0yZDYyM2ZhMi1kMTM1LTRkZTktYWQ2Ni1iMzUyM2ViMWYwNDQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.84phDxP_FviZ1KcCAHng7QI0IbjMtA7sUO9ha15Kss0" width="27px">
  " Is that all you got? " <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e96a2c41-07fd-4723-abf1-bfd57e311ba9/d3xjdcv-2d623fa2-d135-4de9-ad66-b3523eb1f044.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2U5NmEyYzQxLTA3ZmQtNDcyMy1hYmYxLWJmZDU3ZTMxMWJhOVwvZDN4amRjdi0yZDYyM2ZhMi1kMTM1LTRkZTktYWQ2Ni1iMzUyM2ViMWYwNDQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.84phDxP_FviZ1KcCAHng7QI0IbjMtA7sUO9ha15Kss0" width="27px">
   </h3>
@@ -16,7 +19,7 @@
   I'm 21 years old so I'd rather no one below 18 interact (unless we're already oomfs or met thru a mutual/friend)
 </p>
 <p align="center">
-  kingdom hearts and persona fans pleaseeee interact ^_^ <3 I'm normal about those series rn..
+  kingdom hearts, gachiakuta, and ninjago fans pleaseeee interact ^_^ <3 I'm normal about those series rn.. (lie)
 </p>
 <p align="center">
   apologies if I don't respond right away, I'm usually offtab doing somethin else.. or busy talking to friends!
@@ -25,10 +28,10 @@
   whispers are totally fine tho! and I lovvee getting crowns + giving crowns!
 </p>
 <p align="center">
-  big fan of akechi and riku.. super normal guy about them.
+  big fan of akechi, riku, zanka + jabber, and kai :9 they are my favs rn
 </p>
 <p align="center">
-  usually at the little 18+ spawnie kh corner with my best oomfies, but will move around if my friends want to :3
+  usually at the little 18+ spawnie kh corner or with the gachiakuta/ninjago ponies with my best oomfies, but will move around if my friends want to :3
 </p>
 <p align="center">
   usually only on 18+ unless friends are in pg atm
