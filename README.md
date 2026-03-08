@@ -38,7 +38,7 @@
   big fan of akechi, riku, zanka + jabber + fu, and kai :9 they are my favs rn
 </p>
 <p align="center">
-  usually at the little 18+ spawnie area or anywhere with the gachiakuta/ninjago/kh ponies with my best oomfies, but will move around if my friends want to :3
+  usually at the little 18+ spawnie area or anywhere with the gachiakuta/ninjago/kingdom heart ponies with my best oomfies, but will move around if my friends want to :3
 </p>
 <p align="center">
   usually only on 18+ unless friends are in pg atm, or if 18+ is dead LOL
