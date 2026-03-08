@@ -9,32 +9,39 @@
   <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f9a81c59-4db9-4177-aee4-19a036dfdadf/d2brudp-e5726814-3a4f-4188-b99a-700f839c95c5.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Y5YTgxYzU5LTRkYjktNDE3Ny1hZWU0LTE5YTAzNmRmZGFkZlwvZDJicnVkcC1lNTcyNjgxNC0zYTRmLTQxODgtYjk5YS03MDBmODM5Yzk1YzUuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.dLd2z1_nb3JaLLtHM3fc3Yd3c97VkrAPyBbgG011-9E" width="57px" height="150"><img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/f9a81c59-4db9-4177-aee4-19a036dfdadf/d2q9uoc-629a04b9-dfaf-42db-a0ec-47e8f17ea6d9.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2Y5YTgxYzU5LTRkYjktNDE3Ny1hZWU0LTE5YTAzNmRmZGFkZlwvZDJxOXVvYy02MjlhMDRiOS1kZmFmLTQyZGItYTBlYy00N2U4ZjE3ZWE2ZDkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.4ZrMbekec-3Ngx4qEddKG2eHizF4Pq3kOuAxtZhooe4" width="90px" height="150">
  </p>
 
+<h3 align="center">
+  AJAX / LEO</h3>
 <p align="center">
-  C+H is fine! and feel free to int and sit with me as long as ur not a weeiirrdo! 
+  <b>09/26/2004 , He/They</b></p>
+
+<p align="center">
+(˶˃𐃷˂˶) </p>
+
+<p align="center">
+  C+H is fine! and feel free to int and sit with me as long as ur not a weeiirrdo! dni weirdos.. <sub>(proship, zionist, racist, lolisho, homophobic, pedo, etc..)</sub>
+<p align="center">
+  <sub>and please don't try to flirt or push a ship onto me, idm sitting as any duo, but I have a boyfriend LOL</sub> 
 </p>
 <p align="center">
   I love making more oomfs.. friend req are off due to spam, but just ask and I can add you!
 </p>
 <p align="center">
-  I'm 21 years old so I'd rather no one below 18 interact (unless we're already oomfs or met thru a mutual/friend)
+  no one below 16 interact <sub>(unless we're already oomfs or met thru a mutual/friend, and please no int outside pt unless 18+)</sub>
 </p>
 <p align="center">
-  kingdom hearts, gachiakuta, and ninjago fans pleaseeee interact ^_^ <3 I'm normal about those series rn.. (lie)
+  kingdom hearts, gachiakuta, and ninjago fans pleaseeee interact ^_^ <3 <sub>I'm normal about those series rn.. (lie)</sub>
 </p>
 <p align="center">
-  apologies if I don't respond right away, I'm usually offtab doing somethin else.. or busy talking to friends!
+  apologies if I don't respond right away, I'm usually offtab doing somethin else.. or busy talking to friends! whispers are totally fine tho! and I lovvee getting crowns + giving crowns!
 </p>
 <p align="center">
-  whispers are totally fine tho! and I lovvee getting crowns + giving crowns!
+  big fan of akechi, riku, zanka + jabber + fu, and kai :9 they are my favs rn
 </p>
 <p align="center">
-  big fan of akechi, riku, zanka + jabber, and kai :9 they are my favs rn
+  usually at the little 18+ spawnie area or anywhere with the gachiakuta/ninjago/kh ponies with my best oomfies, but will move around if my friends want to :3
 </p>
 <p align="center">
-  usually at the little 18+ spawnie kh corner or with the gachiakuta/ninjago ponies with my best oomfies, but will move around if my friends want to :3
-</p>
-<p align="center">
-  usually only on 18+ unless friends are in pg atm
+  usually only on 18+ unless friends are in pg atm, or if 18+ is dead LOL
 </p>
 <p align="center">
   inspo is fine, but no direct copying or screenshotting my skins pleasee!
