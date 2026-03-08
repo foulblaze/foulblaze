@@ -12,7 +12,7 @@
 <h3 align="center">
   AJAX / LEO</h3>
 <p align="center">
-  <b>09/26/2004 , He/They</b></p>
+  <b>Eng , 09/26/2004 , He/They</b></p>
 
 <p align="center">
 (˶˃𐃷˂˶) </p>
