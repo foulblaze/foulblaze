@@ -1,6 +1,7 @@
-<p align="center" width="100%">
-<video src="https://github.com/user-attachments/assets/e310a154-c3cd-4da0-af91-8a3985c7b96a" width="10%" controls></video>
-</p>
+<div align="center">
+<video src="https://github.com/user-attachments/assets/e310a154-c3cd-4da0-af91-8a3985c7b96a" width="80%" controls></video>
+
+<h6 align> 
 
 <p align="center">
   <sub>lowkey gotta remake this and make it zanka theme LOL (still love kh and riku tho)</sub>
