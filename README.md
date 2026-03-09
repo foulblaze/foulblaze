@@ -1,5 +1,5 @@
 <p align="center" width="100%">
-<video src="https://github.com/user-attachments/assets/e310a154-c3cd-4da0-af91-8a3985c7b96a" width="80%" controls></video>
+<video src="https://github.com/user-attachments/assets/e310a154-c3cd-4da0-af91-8a3985c7b96a" width="10%" controls></video>
 </p>
 
 <p align="center">
