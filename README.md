@@ -25,13 +25,13 @@
 <p align="center">
   C+H is fine! and feel free to int and sit with me as long as ur not a weeiirrdo! dni weirdos.. <sub>(proship, zionist, racist, lolisho, homophobic, pedo, etc..)</sub>
 <p align="center">
-  <sub>and please don't try to flirt or push a ship onto me, idm sitting as any duo, but I have a boyfriend LOL</sub> 
+  <sub>and please don't try to flirt or push a ship onto me, idm sitting as any duo even if they are shipped, but I have a boyfriend LOL</sub> 
 </p>
 <p align="center">
   I love making more oomfs.. friend req are off due to spam, but just ask and I can add you!
 </p>
 <p align="center">
-  no one below 16 interact <sub>(unless we're already oomfs or met thru a mutual/friend, and please no int outside pt unless 18+)</sub>
+  no one below 17 interact <sub>(unless we're already oomfs or met thru a mutual/friend, and please no int outside pt unless 18+)</sub>
 </p>
 <p align="center">
   kingdom hearts, gachiakuta, and ninjago fans pleaseeee interact ^_^ <3 <sub>I'm normal about those series rn.. (lie)</sub>
