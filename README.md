@@ -68,11 +68,10 @@
   my lovely oomfies!
 
 <p align="center"> <a href="https://github.com/dollbelial">@dollbelial (my boyfriend crowleyy hii <3 ^_^) </a> ー <a href="https://github.com/trashedandscattered">@trashedandscattered (my brother in law!) </a> ー <a href="https://github.com/tongariz">@tongariz (my bff!! hiihiii!!) </a>
-<p align="center"> <a href="https://x.com/Mikachu_B">@Mikachu_B (Mika!) </a> ー <a href="https://github.com/hat-fix">@hat-fix (THE shinmin!) </a> ー <a href="https://github.com/keajkidd">@keajkidd (rae rae!!) </a> ー <a href="https://github.com/NocturnalNatis">@NocturnalNatis (my twin!! :3) </a> ー <a href="https://github.com/kashisangel">@kashisangel (kashi the goat!!) </a>
-<p align="center"> <a href="https://github.com/poltican">@poltican (THE poltican himself) </a> ー <a href="https://github.com/chintuli">@chintuli (elsie!! Hello bloxburg child.) </a> ー <a href="https://github.com/fleshwater">@fleshwater (tyr!!) </a> ー <a href="https://github.com/noheart-isim">@noheart-isim (cleo) </a>
+<a href="https://github.com/hat-fix">@hat-fix (THE shinmin!) </a> ー <a href="https://github.com/keajkidd">@keajkidd (rae rae!!) </a> ー <a href="https://github.com/NocturnalNatis">@NocturnalNatis (my twin!! :3) </a> ー <a href="https://github.com/kashisangel">@kashisangel (kashi the goat!!) </a> ー <a href="https://github.com/birdpesky">@birdpesky (my zanka twin, poet!!) </a> <a href="https://x.com/Mikachu_B">@Mikachu_B (Mika!) </a> ー <a href="https://github.com/poltican">@poltican (THE poltican himself) </a> ー <a href="https://github.com/chintuli">@chintuli (elsie!! Hello bloxburg child.) </a> ー <a href="https://github.com/tsukasairl">@tsukasairl (kasa!!) </a>
 </p>
 <p align="center">
-  honorable mentions: Blake & JC :3
+  honorable mentions: Blake, JC, Sev, Taki :3
 </p>
 <p align="center">
   plus some more who don't have their githubs put up, or no links attached to their ponies ^_^ (or just look at my following tab)
