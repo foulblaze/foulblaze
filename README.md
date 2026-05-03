@@ -25,7 +25,7 @@
 <p align="center">
   C+H is fine! and feel free to int and sit with me as long as ur not a weeiirrdo! dni weirdos.. <sub>(proship, zionist, racist, lolisho, homophobic, pedo, etc..)</sub>
 <p align="center">
-  <sub>and please don't try to flirt or push a ship onto me, idm sitting as any duo even if they are shipped, but I have a boyfriend LOL</sub> 
+  <sub>and please don't try to srsly flirt or push a ship onto me, idm sitting as any shipped duo tho!</sub> 
 </p>
 <p align="center">
   I love making more oomfs.. friend req are off due to spam, but just ask and I can add you!
@@ -40,7 +40,7 @@
   apologies if I don't respond right away, I'm usually offtab doing somethin else.. or busy talking to friends! whispers are totally fine tho! and I lovvee getting crowns + giving crowns!
 </p>
 <p align="center">
-  big fan of akechi, riku, zanka + jabber + fu, and kai :9 they are my favs rn
+  big fan of akechi, riku, zanka + jabber + fu, lohen + illuga + flins, and kai :9 they are my favs rn
 </p>
 <p align="center">
   usually at the little 18+ spawnie area or anywhere with the gachiakuta/ninjago/kingdom heart ponies with my best oomfies, but will move around if my friends want to :3
@@ -67,7 +67,7 @@
 <p align="center">
   my lovely oomfies!
 
-<p align="center"> <a href="https://github.com/dollbelial">@dollbelial (my boyfriend crowleyy hii <3 ^_^) </a> ー <a href="https://github.com/trashedandscattered">@trashedandscattered (my brother in law!) </a> ー <a href="https://github.com/tongariz">@tongariz (my bff!! hiihiii!!) </a> ー <a href="https://github.com/0katanas4u">@0katanas4u (THE shinmin!) </a> ー <a href="https://github.com/keajkidd">@keajkidd (rae rae!!) </a> ー <a href="https://github.com/kashisangel">@kashisangel (kashi the goat!!) </a> ー <a href="https://github.com/birdpesky">@birdpesky (my truest realest zanka twin ever, poet!!) </a> ー <a href="https://x.com/Mikachu_B">@Mikachu_B (Mika!) </a> ー <a href="https://github.com/poltican">@poltican (THE poltican himself) </a> ー <a href="https://github.com/chintuli">@chintuli (elsie!! Hello bloxburg child.) </a> ー <a href="https://github.com/tsukasairl">@tsukasairl (kasa!!) </a>
+<p align="center"> <a href="https://github.com/dollbelial">@dollbelial (the lovely crowleyy!) </a> ー <a href="https://github.com/trashedandscattered">@trashedandscattered (the coolest guy eva!) </a> ー <a href="https://github.com/tongariz">@tongariz (my bff!! hiihiii!!) </a> ー <a href="https://github.com/0katanas4u">@0katanas4u (THE shinmin!) </a> ー <a href="https://github.com/keajkidd">@keajkidd (rae rae!!) </a> ー <a href="https://github.com/kashisangel">@kashisangel (kashi the goat!!) </a> ー <a href="https://github.com/birdpesky">@birdpesky (my truest realest zanka twin ever, poet!!) </a> ー <a href="https://x.com/Mikachu_B">@Mikachu_B (Mika!) </a> ー <a href="https://github.com/poltican">@poltican (THE poltican himself) </a> ー <a href="https://github.com/chintuli">@chintuli (elsie!! Hello bloxburg child.) </a> ー <a href="https://github.com/tsukasairl">@tsukasairl (kasa!!) </a>
 </p>
 <p align="center">
   honorable mentions: Blake, JC, Sev, Taki :3
