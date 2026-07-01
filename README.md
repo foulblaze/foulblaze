@@ -4,7 +4,7 @@
 <h6 align> 
 
 <p align="center">
-  <sub>super lazy, will edit later</sub> 
+  <sub>super lazy, will edit later.. get ready for a yap fest.</sub> 
 </p>
 
 <h3 align="center">
@@ -18,11 +18,13 @@
 <h3 align="center">
   AJAX / LEO</h3>
 <p align="center">
-  <b>Eng , 09/26/2004 , He/They</b></p>
+  <b>Eng , 21 , He/They</b></p>
 
 <p align="center">
   <img src="https://i.postimg.cc/grtTBpx5/Untitled334-20260630182621.png" width="200px">
   </p>
+
+<p align="center"> <sub><a href="https://x.com/Hakusu_xxx/status/2032487180522975359?s=20">credit </a></sub></p>
   
 <p align="center">
 (˶˃𐃷˂˶) </p>
@@ -63,6 +65,8 @@
 <p align="center">
   <img src="https://i.postimg.cc/dDNxSF7Y/Untitled333-20260630182127.png" width="100px">
   </p>
+
+<p align="center"> <sub><a href="https://x.com/Izuki_kbuc/status/2037520078208745595?s=20">credit</a></sub></p>
 
 <p align="center"> <sub>this is jus a small test and will be edited in the future :3</sub>
 
