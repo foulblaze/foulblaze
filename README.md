@@ -79,7 +79,7 @@
 <p align="center">
   my lovely oomfies!
 
-<p align="center"> <a href="https://github.com/dollbelial">@dollbelial </a>/<a href="https://github.com/lohare">@lohare (dearest lohare..) </a> ー <a href="https://github.com/tongariz">@tongariz (my bff!! hiihiii!!) </a> ー <a href="https://github.com/0katanas4u">@0katanas4u (THE shinmin!) </a> ー <a href="https://github.com/chintuli">@chintuli (elsie!! Hello bloxburg child.) </a>
+<p align="center"> <a href="https://github.com/dollbelial">@dollbelial </a>/<a href="https://github.com/lohare">@lohare (dearest lohare..) </a> ー <a href="https://github.com/tongariz">@tongariz (my bff!! hiihii!!) </a> ー <a href="https://github.com/0katanas4u">@0katanas4u (THE shinmin!) </a> ー <a href="https://github.com/chintuli">@chintuli (elsie! Hello bloxburg child.) </a>
 <p align="center">  <a href="https://github.com/kashisangel">@kashisangel (kashi the goat!!) </a> ー <a href="https://github.com/birdpesky">@birdpesky (my truest realest zanka twin ever, poet!!) </a> ー <a href="https://x.com/Mikachu_B">@Mikachu_B (Mika!) </a>
 <p align="center"> <a href="https://github.com/poltican">@poltican (THE poltican himself) </a> ー <a href="https://github.com/keajkidd">@keajkidd (rae rae!!) </a>
 </p>
