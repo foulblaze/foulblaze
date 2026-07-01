@@ -42,22 +42,22 @@
   super illuga, lohen, flins, and varka pilled rn... <sub>yes I fw them all being shipped with one another, don't like it then don't int</sub>
 </p>
 <p align="center">
-  but kingdom hearts, gachiakuta, and ninjago fans pleaseeee interact too! ^_^ <3 <sub>I'm normal about those series rn.. (lie)</sub>
+  but kingdom hearts, gachiakuta, and ninjago fans pleaseeee interact! ^_^ <3 <sub>I'm normal about those series rn.. (lie)</sub>
 </p>
 <p align="center">
-  apologies if I don't respond right away, I'm usually offtab doing somethin else.. or busy talking to friends! whispers are totally fine tho! and I lovvee getting crowns + giving crowns!
+  apologies if I don't respond right away, I'm mostly offtab doing somethin else.. or busy talking to friends! whispers are totally fine tho! and I lovvee getting crowns + giving crowns!
 </p>
 <p align="center">
-  big fan of lohen + illuga, :9 they are my top favs rn, but I adore alot of other characters!
+  big fan of lohen + illuga :9 they are my top favs rn, but I adore alot of other characters!
 </p>
 <p align="center">
   usually at the little 18+ spawnie area or anywhere with the genshin/gachiakuta/ninjago/kingdom heart ponies with my best pee-teers, but will move around if my friends want to :3
 </p>
 <p align="center">
-  usually only on 18+ unless friends are in pg, or 18+ is dead LOL
+  I'm only on 18+ unless friends are in pg, or 18+ is dead LOL
 </p>
 <p align="center">
-  inspo is fine, but no direct copying or screenshotting my skins pleasee!
+  inspo is fine, but no direct copying or screenshotting/uploading my skins pleasee!
 </p>
 
 <p align="center">
